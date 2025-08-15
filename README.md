@@ -11,7 +11,7 @@ My work focuses on **Cybersecurity**, **Blockchain**, **Quantum Computing**, and
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...insta @santhoshkumar
 
-📫 How to reach me ...linker in @https://www.linkedin.com/in/asanthosh-kumar568
+📫 How to reach me ...LINKED IN @https://www.linkedin.com/in/asanthosh-kumar568
 
 ---
 
